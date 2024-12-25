@@ -9,5 +9,5 @@
 - 💬 Ask me about board games
 - 📫 How to reach me: jc212@rice.edu
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I've ridden 171 roller coasters.
+- ⚡ Fun fact: I've ridden 174 roller coasters.
 
